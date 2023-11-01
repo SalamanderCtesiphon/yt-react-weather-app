@@ -6,3 +6,5 @@
 - Enjoy!!
 
 > Leave a star :)
+
+what a scam
